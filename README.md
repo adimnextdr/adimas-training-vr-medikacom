@@ -1,0 +1,1 @@
+# adimas-training-vr-medikacom
